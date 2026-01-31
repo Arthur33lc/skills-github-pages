@@ -1,3 +1,3 @@
 ---
-AI Warfare: where AI will change your opinions!
+AI Warfare: where and how AI changes your opinions!
 ---
