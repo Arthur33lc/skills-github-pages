@@ -1,3 +1,3 @@
 ---
-title: Welcome to my blog!
+AI Warfare: where AI will change your opinions!
 ---
